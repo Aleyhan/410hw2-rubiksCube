@@ -4,7 +4,7 @@
 
 ---
 
-#### > *Ali Han Kılınç & Abdurrahman Çağatay*
+#### > *Ali Han Kılınç & Abdurrahman Çağlayan*
 
 ---
 # Project Description
